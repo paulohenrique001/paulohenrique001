@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @paulohenrique001
+👋 Hi, I'm Henrique, currently working on some study projects to share with everyone here.
